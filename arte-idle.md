@@ -1,3 +1,3 @@
-# arte-idle
+# Arte Idle
 
 

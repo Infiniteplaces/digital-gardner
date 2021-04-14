@@ -1,2 +1,2 @@
-# leisure-coop
+# Leisure Cooperatives
 

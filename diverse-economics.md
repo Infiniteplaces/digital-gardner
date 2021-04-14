@@ -1,2 +1,2 @@
-# diverse-economics
+# Diverse-Economics
 
